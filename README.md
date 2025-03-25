@@ -49,6 +49,6 @@ Thank you for trusting Flext Careers!
 
 Contact us via:
 
-Email: Kodelite.ke@gmail.com
+Email: tera.jobs.ke@gmail.com
 
 Mobile: +254 714 947 370
